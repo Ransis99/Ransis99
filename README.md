@@ -2,7 +2,7 @@
 - 👀 I’m interested in videogames and web development 
 - 🌱 I’m currently learning python lenguage and HTML 
 - 💞️ I’m looking to collaborate on large software companies 
-- 📫 How to reach me, simple, videogames xd 
+- 📫 How to reach me, simple, videogames xd Ransis117@gmail.com
 - 😄 Pronouns: Rafa, Ransis 
 - ⚡ Fun fact: ...
 
